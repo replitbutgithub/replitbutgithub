@@ -1,2 +1,5 @@
-Hi! I'm [@RyanYashar](https://replit.com/@RyanYashar), visit me on Replit!
-I'm more active there than here, but I still mess around a bit here.
+ok so new stuff
+replit got blocked :*(*
+so now i randomly post stuff here
+if it doesnt work i dont care
+if it does ill post that it does
